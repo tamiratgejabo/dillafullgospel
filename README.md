@@ -1,1 +1,1 @@
-# dillafullgospel.github.io
+# dillafullgospelchurch.github.io
